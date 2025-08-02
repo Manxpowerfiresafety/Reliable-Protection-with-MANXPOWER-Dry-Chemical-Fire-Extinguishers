@@ -18,7 +18,7 @@ MANXPOWER goes beyond just manufacturing extinguishers. The brand offers complet
 When choosing a fire extinguisher, reliability and performance are non-negotiable. MANXPOWER <a href="https://manximpex.com/product/abc-type-fire-extinguisher/" title="Dry Chemical Fire Extinguisher" alt"Dry Chemical Fire Extinguisher" <a>Dry Chemical Fire Extinguisher</a> deliver both—with unmatched quality, multi-purpose capability, and dependable support. Whether you're protecting your home or your business, trust MANXPOWER to safeguard what matters most.<br>
 <h5>Choose MANXPOWER—Because Every Second Counts in Fire Safety.</h5>
 <h3>Get in touch with us:</h3>
-<b>Visit: https://manximpex.com/product/co2-fire-extingusisher/ </b><br>
+<b>Visit: https://manximpex.com/product/abc-type-fire-extinguisher/ </b><br>
 <b>E-mail: info@manximpex.com </b><br>
 <b>Contact Number: +91- 7065192900, +91- 7428115550</b><br>
 <b>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006 </b><br>
